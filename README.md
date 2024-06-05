@@ -12,4 +12,4 @@ julianomichelan@prof.educacao.sp.gov.br
 
 @julianomichelan
 
-![](https://media1.tenor.com/m/_JYmGUnMUlkAAAAd/terry-crews.gif)
+![](https://media1.tenor.com/m/qjHNf07q9B4AAAAC/mortal-kombat-kitana.gif)
